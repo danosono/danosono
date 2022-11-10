@@ -1,2 +1,2 @@
 Hi, I’m @danosono
-I’m interested in making known to all the gospel of Jesus Christ because He is amazing! 
+Making the gospel of Jesus Christ known to all. 
